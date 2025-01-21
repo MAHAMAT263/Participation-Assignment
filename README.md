@@ -1,2 +1,2 @@
 # Participant names
-Mahamat Hissein Ahmat ; Adedigba Adediwura
+Mahamat Hissein Ahmat ; Adedigba Adediwura Emmanuel
